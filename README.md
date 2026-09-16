@@ -1,5 +1,4 @@
-## 🔏
-
+## ...🔏
 ## Campaign Archives (sorted by latest)
 
 ⚠️ **Every entry in this list is extremely offensive and unsafe for all audiences. (+18) Viewer discretion is advised.**
